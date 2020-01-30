@@ -1,1 +1,0 @@
-# almazmr.github.io
